@@ -5,8 +5,9 @@ welcome to a digital archive dedicated to the rich culture, wisdomand resilience
 
 
 
-##sections
-**stories nad proverbs** 
+##SECTIONS
+
+**stories and proverbs** 
 
 **youth empowerment resouces**
 
