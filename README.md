@@ -7,8 +7,13 @@ welcome to a digital archive dedicated to the rich culture, wisdomand resilience
 
 ##sections
 **stories nad proverbs** 
+
 **youth empowerment resouces**
+
 **conservation reports**
+
 **comunity projects and proposals**
+
 **field diaries**
+
 **digital blog (coming soon)**
